@@ -2,7 +2,7 @@
 - 👀 I’m interested in volleyball, piano, games, and traveling
 - 🌱 I’m currently learning Computer Science and Cyber Security
 - 💞️ I’m looking to collaborate on anything 
-- 📫 How to reach me taylilchil@gmail.com
+- 📫 How to reach me taylilchil@gmail.com or taylormjkimm on insta
 
 <!---
 Tayymon/Tayymon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
